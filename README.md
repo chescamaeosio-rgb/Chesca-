@@ -1,2 +1,2 @@
-# Chesca-
+# Chesca
 Business card
